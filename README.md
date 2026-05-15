@@ -2,6 +2,8 @@
 
 ![](https://files.catbox.moe/flarzo.webp)
 
-me btw me
+$\texttt{\color{#1D61A0} me btw me }$
 
-iwc doubles, still friendly though!!
+$\texttt{\color{#72797F} iwc doubles, still friendly though!! }$
+
+$\texttt{\color{#72797F} c×h PLEASE gets on knees and begs/hj. pls pls }$
