@@ -1,6 +1,6 @@
 <div align=center>
 
-![](https://files.catbox.moe/flarzo.webp)
+![](https://files.catbox.moe/xmf0s7.jpg)
 
 $\texttt{\color{#1D61A0} me btw me }$
 
@@ -9,7 +9,3 @@ $\texttt{\color{#72797F} n.1 robur fan + fictkin , iwec doubles but im still sup
 $\texttt{\color{#72797F} c×h PLEASE gets on knees and begs/hj. pls pls }$
 
 [i dont have a robur themed ata yet so umm heres my main](https://iknowuraddress.atabook.org/)
-
-![](https://files.catbox.moe/c6e1p2.jpg)
-
-me and @seraphlazer hi :)
